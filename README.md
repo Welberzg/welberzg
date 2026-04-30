@@ -50,5 +50,5 @@ Atuar como Analista de Infraestrutura / Automação, evoluindo para Cloud ou Seg
 
 ## 📫 Contato
 
-* 🔗 LinkedIn: (COLOQUE SEU LINK AQUI)
-* 📧 Email: (COLOQUE SEU EMAIL AQUI)
+* 🔗 LinkedIn: https://www.linkedin.com/in//welberguidotti
+* 📧 Email: welberzguidotti@yahoo.com.br
